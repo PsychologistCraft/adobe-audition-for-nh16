@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with advanced Adobe Audition for PC | Adobe Audition for Windows Automation | spectrogram-view + voice-enhancement, the
 
 
 
